@@ -1,7 +1,6 @@
 # **JISHNU SYGAL**
 
-#### Kochi, India \| P: +352 58896444 \| jishnu.sygal@gmail.com \|
-linkedin.com/in/jishnusygal
+#### Kochi, India \| P: +352 58896444 \| jishnu.sygal@gmail.com \| linkedin.com/in/jishnusygal
 
 ## **PROFESSIONAL PROFILE**
 
