@@ -1,6 +1,6 @@
 # **JISHNU SYGAL**
 
-#### Kochi, India \| P: +372 58896444 \| jishnu.sygal@gmail.com \| linkedin.com/in/jishnusygal
+#### Tallinn, Estonia \| P: +372 58896444 \| jishnu.sygal@gmail.com \| linkedin.com/in/jishnusygal
 
 ## **PROFESSIONAL PROFILE**
 
